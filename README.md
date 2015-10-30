@@ -11,6 +11,6 @@ I'm editing the README again.  Then I'll try to write over it, make a mistake, a
 
 Here's the mischievous edit.
 
-Stepping all over your edit.
+Stepping all over your edit.   This is fucking stupid and wrong...  You're an asshole.
 
 
